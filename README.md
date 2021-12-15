@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @dylanvowell
+- 👀 I’m interested in Data Analytics, working out, and my dog!
+- 🌱 I’m currently learning Data Analytics through University of Denver at night - which includes Excel/VBA Scripting, Programming, and Data Visualization.
+- 📫 How to reach me - vowelldy@gmail.com or 989-493-2482
