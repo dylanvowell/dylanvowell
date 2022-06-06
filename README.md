@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @dylanvowell
-- 👀 I’m interested in Data Analytics, working out, and my dog!
+- 👀 I’m interested in finding the hidden treasure that data can lead us to! 
 - 🌱 I just completed University of Denver's Data Analytics Bootcamp and I'm ready to start my new career!
 - 📫 How to reach me - vowelldy@gmail.com or 989-493-2482
