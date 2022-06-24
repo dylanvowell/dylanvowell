@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @dylanvowell
-- 👀 I’m interested in finding the hidden treasure that data can lead us to! 
-- 🌱 I just completed University of Denver's Data Analytics Bootcamp and I'm ready to start my new career!
+- 👀 I have an unquenchable thirst for knowledge and a drive to succeed. 
+- 🌱 Motivated by the untapped potential of data that can be used to create stories and teach everyone a bit more about the world we live in.
 - 📫 How to reach me - vowelldy@gmail.com or 989-493-2482
